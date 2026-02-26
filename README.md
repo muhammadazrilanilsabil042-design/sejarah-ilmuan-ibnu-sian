@@ -1,2 +1,2 @@
-# sejarah-ilmuan-ibnu-sian
+# sejarah-ilmuan-ibnu-sina
 sejarah ilmuan muslim
